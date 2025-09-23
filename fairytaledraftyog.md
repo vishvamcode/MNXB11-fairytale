@@ -1,1 +1,1 @@
-With or without
+Many have failed to summon their End of Days, that final Silence where life is undone and the mortal tales broken. That is the first the summoner must be ready for before the ritual itself is underway, the one whose name is Azizoth, the one is not fully known and can not be fully known by the summoner. The arrogance and hubris of the one who believes he knows the full form of Azizoth, that mind is already doomed to the darkness that is the unknown, a fitting punishment. Forget what you think you know, and prepare to enter the black oceans of infinity! 
